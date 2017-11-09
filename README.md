@@ -1,1 +1,0 @@
-# Karaush Vladlen
